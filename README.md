@@ -4,7 +4,7 @@
 
 如果有相關資料可以提供 可通過以下方式和我取得聯繫:
 
-- WeChat ID:KongkongOA
-- Email:kong_tsai@outlook.com
+- WeChat ID: kong_tsai
+- Email: kong_tsai@outlook.com
 
 thx!
